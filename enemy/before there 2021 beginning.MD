@@ -1,0 +1,1 @@
+Putu is hostile to himself because of the problem of high living costs but no income and is categorized as a communist. Putu really wanted to go far and get rid of the communists but the communists tried to help him and Putu also tried to reject him like hate but love.
