@@ -1,0 +1,1 @@
+Sometimes the internet at home is stuck and you can't rely on it. sometimes even from a smartphone too because it is far from the transmitter. actually both of them cannot be used because there is no money to use the service.
